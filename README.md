@@ -1,4 +1,4 @@
-# PHẦN MỀM INTELLA
+# PHẦN MỀM INTELLA PORTABLE 
 Phần mềm cờ tướng Intella
 
 Download phần mềm **[tại đây](https://bsthanh-my.sharepoint.com/:f:/g/personal/laptopxiaomi_bsthanh_tk/EvCS8dHZ1d9JotkuLvdr8doBCgkQG1LWI6TphUdFOsPpgQ?e=agtOt5)** link **[dự phòng](https://1drv.ms/u/s!Ao74wlrkLhtdpDPvwYV8lgL-wByz?e=tOcF6q)**
