@@ -1,4 +1,9 @@
+Tác giả: Nguyễn Chí Thành
+
+![IMG_1674314482411_1674314628494](https://user-images.githubusercontent.com/82578024/231749370-cff3f452-4349-46bd-80e4-dd85653ca27f.jpg)
+
 # PHẦN MỀM INTELLA PORTABLE 
+
 Phần mềm cờ tướng Intella
 
 Download phần mềm **[tại đây](https://bsthanh-my.sharepoint.com/:f:/g/personal/laptopxiaomi_bsthanh_onmicrosoft_com/EvCS8dHZ1d9JotkuLvdr8doBCgkQG1LWI6TphUdFOsPpgQ?e=agtOt5)** link **[dự phòng](https://1drv.ms/u/s!Ao74wlrkLhtdpDPvwYV8lgL-wByz?e=tOcF6q)**
