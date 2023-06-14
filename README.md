@@ -23,3 +23,5 @@ Chạy chương trình:
 ![1](https://user-images.githubusercontent.com/82578024/166642484-861ca245-b909-4c9f-b6a4-fc676d2eb586.png)
 
 Còn rất nhiều chức năng khác bạn từ từ mà khám phá!
+
+## [BẤM VÀO ĐÂY, NẾU MUỐN ỦNG HỘ SỰ HOẠT ĐỘNG CỦA KÊNH](https://me.momo.vn/OeIRuaTbfqsmFyiataCM/MvbmqGVrVjLpbYA) ##
